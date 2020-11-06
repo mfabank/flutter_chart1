@@ -1,2 +1,1 @@
-
-![elmadilim](https://user-images.githubusercontent.com/53713274/98417401-e6d50900-2091-11eb-93b2-1fd90501c8e3.jpg)
+![pastadilim](https://user-images.githubusercontent.com/53713274/98417943-f3a62c80-2092-11eb-8f21-641146c63f10.jpg)
